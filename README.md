@@ -4,6 +4,6 @@
 i put blocks here together a bit  
 -Kusai
 
-~~Kouzeru x AArt1256 when~~
+~~Kouzeru x AArt1256 ship when~~
 
 [Cool Raymarcher](https://turbowarp.org/516155423/)
