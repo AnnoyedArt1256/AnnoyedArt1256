@@ -1,6 +1,9 @@
 ### Hi i guess lol
-### Kouzeru is a pretty cool guy
 
 ## A cool quote
 i put blocks here together a bit  
--Kouzeru
+-Kusai
+
+~~Kouzeru x AArt1256 when~~
+
+[Cool Raymarcher](https://turbowarp.org/516155423/).
